@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BrunaRafaela
-- 👀 I’m interested in tech, finance, economy, science, physics, criptos and games
+- 👀 I’m interested in tech, finance, economy, science, physics...
 - 🌱 I’m currently learning Machine learning, data science, data engineering, A.I
 - 💞️ Technology was the only place where the world started to make sense.
 - 📫 How to reach me brunarafaela2335@gmail.com
